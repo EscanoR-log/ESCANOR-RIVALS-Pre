@@ -1,0 +1,2 @@
+# ESCANOR-RIVALS-Pre
+wezuvbtriw6ueztgvrbwe6u&amp;(T69tbR&amp;/7r6&amp;67563258792365987236589236583265872368562387568237659326v5826395zn2q9bzn9wezb9r7zqwe9rbnzwe89zrb823wtz58b9zwe8rzbttuw48q7wzn0912704789?!?!?!?!?!?="!^´?§$)V!"IVU§$Q=?UN&amp;=?)$§UN(=UZ(=ER&amp;J/ATZMB)E(&amp;TB(WA)EUTN(=WZ/$(?=&amp;N&lt;&lt;&lt;&lt;&lt;JNUK&lt;HD&lt;ZHDUZ&lt;AUIODZ/A||E&lt;€|@@³³³{³{{[[{³²GFDHUDZFdhjfuweksdzhbntrion7w4znt5b7in2t38wzb8w89a
